@@ -1,6 +1,6 @@
 # German Politics and Culture – Introduction to the Political System of the Federal Republic of Germany
 
-![Chancellor Brandt at the Warsaw Ghetto Memorial](http://dl.dropboxusercontent.com/u/5341489/images/kniefall-brandt_crop.jpg)
+![Chancellor Brandt at the Warsaw Ghetto Memorial](http://dl.dropboxusercontent.com/u/5341489/images/kniefall-brandt.jpg)
 
 "German Politics and Culture" has a dual objective, as both area studies and applied social science theory seminar.
 
